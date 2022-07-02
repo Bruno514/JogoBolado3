@@ -9,5 +9,7 @@ o jogo mais bolado que voce ja viu
 
 ![Para jogar com seus parentes e amigos!](https://variety.com/wp-content/uploads/2019/05/family-gaming-esa.png)
 
-> **Perdeu o prêmio "Jogo do Ano 2018" apenas para Red Dead Redemption 2**
+ **Perdeu o prêmio "Jogo do Ano 2018" apenas para The Last of Us**
+
+![Perdeu o prêmio "Jogo do Ano 2018" apenas para The Last of Us!](http://images3.memedroid.com/images/UPLOADED343/5848acb938682.jpeg)
 
