@@ -1,5 +1,6 @@
-import pygame
+import pygame,os
 # para corno pq vc faz cagada
+# fodase
 # nn foco agora
 # foco
 from player import Player
